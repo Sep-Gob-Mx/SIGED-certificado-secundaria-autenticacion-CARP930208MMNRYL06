@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CARP930208MMNRYL06
+CARP930208MMNRYL06
